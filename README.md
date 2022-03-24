@@ -1,5 +1,5 @@
 # Start-and-grow-a-hyper-profitable-accounting-firm
-<h1><a href="https://rahulconsulting.com/home">Start and grow a hyper profitable accounting firmstart accounting firm accounting firm and starting cpa firm</a></h1>
+<h1><a href="https://rahulconsulting.com/home">Start and grow a hyper profitable accounting firm</a></h1>
 start accounting firm accounting firm
 starting cpa firm
 I help Accountants and Bookkeepers start and grow hyper profitable accounting firms even if they don't have a license, degree, or job experience. most of tax clients come in march
